@@ -1,1 +1,1 @@
-tiburoncin.lat/22376/dibujo
+https://tiburoncin.lat/22376/dibujo
